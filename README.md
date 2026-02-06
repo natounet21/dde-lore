@@ -1,0 +1,2 @@
+# dde-lore
+ddededodediamante lore
